@@ -18,3 +18,9 @@ pero el niño lobo era más fuerte. Forcejearon por un momento hasta que, finalm
 Caperucita, aunque asustada, no se dejó vencer por la tristeza. Recordó las palabras de su madre, 
 quien le había advertido sobre los peligros de la colonia y le había enseñado a no dejarse intimidar. 
 Aprovechando un momento de distracción, Caperucita rápidamente tomó una piedra y la arrojó con fuerza hacia el Brian, impactando su brazo.
+
+Caperucita corrio con todas sus ganas para poder atrapar al Bryan y poder pelear con el
+para recuperar el dinero de la tanda, despues de darle muchos golpes recupero el dinero y se fue hacia
+la casa de su abuela.
+Al llegar con ella le mintio y le dijo que alguien la habia robado el dinero, y asi ella poder 
+quedarse con la tanda para ir a jugar a las maquinitas.
